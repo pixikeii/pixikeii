@@ -1,4 +1,3 @@
-<img width="753
-  " height="476
-  " alt="image" src="https://github.com/user-attachments/assets/8623b833-4027-41e9-899f-cb9e9de33c3c" />
+<img width="498" height="279" alt="book-pencil" src="https://github.com/user-attachments/assets/c9058968-0fd1-4287-a7e8-c52485d03f25" />
+
 ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀
