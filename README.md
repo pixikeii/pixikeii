@@ -4,6 +4,6 @@
 
 
 ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀
-<img width="1435" height="347" alt="oka" src="https://github.com/user-attachments/assets/f5362c1b-abb8-4515-abe3-eb1e197e84a6" />
+<img width="1435" height="445" alt="oka" src="https://github.com/user-attachments/assets/f5362c1b-abb8-4515-abe3-eb1e197e84a6" />
 
 
