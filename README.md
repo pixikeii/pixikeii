@@ -3,7 +3,8 @@
 
 <p align="center">
 <img width="736" height="414" alt="Untitled32_20261022125151" src="https://github.com/user-attachments/assets/aa429f80-eb88-4d25-b14d-f193e5b8dd6d" />
-
+  <p align="center">
+<font face="Verdana" color="#ceb4d4">﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵</font>
 
 <p align="center">
 <img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/906ac8a5-ff8d-40ad-bde7-4561ef4ddee5" />
