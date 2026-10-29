@@ -8,7 +8,8 @@
   <p align="center">
 <code style="color : name_purple">⏝⏝⏝ ⠀ ݁ ⠀꒡ ͝ ˖
 ;;ㅤ˖ㅤ࣪ㅤsheﾉthey
-. ݁ ˖ㅤ00 ㅤ ,, people have beautiful things to say about you, but you must die first. ''</code>
+. ݁ ˖ㅤ00 ㅤ ,, people have beautiful things to say about you, but you must die first. ''
+bad anger issues, iwc </code>
 <p align="center">
 <img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/906ac8a5-ff8d-40ad-bde7-4561ef4ddee5" />
 <p align="center">
