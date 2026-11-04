@@ -7,7 +7,7 @@
 
 
   <p align="center">
-<a href="https://tabbyx.atabook.org">ata !!</a>
+<a href="https://tabbyx.atabook.org">ata owo</a>
 <p align="center">
 <img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/906ac8a5-ff8d-40ad-bde7-4561ef4ddee5" />
 <p align="center">
